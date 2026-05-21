@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on web designs 
 - 📫 reach me @ afolabiabdulmuiz5@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact:I love playing EAFC25
+- ⚡ Fun fact:I love playing EAFC26
 
 <!---
 Muiz-2008/Muiz-2008 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
